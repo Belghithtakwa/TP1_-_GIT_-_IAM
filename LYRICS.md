@@ -63,3 +63,16 @@ Ce coup vient d'un expert à la guerre
 Vaillant praticien des arts martiens
 Délégué pour mettre un terme à ces horreurs
 Tel est mon labeur, tu sais de qui je défends l'honneur
+
+
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
